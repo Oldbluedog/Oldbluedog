@@ -2,7 +2,7 @@
 - 👀 I’m interested in Technic drivelines and automation
 - 🌱 I’m currently learning oh so much
 - 💞️ I’m looking to collaborate on Technic automatic transmissions and automatic locking differentials
-- 📫 How to reach me E. 225hp2100s@gmail.com
+- 📫 How to reach me - just on here
 
 <!---
 Oldbluedog/Oldbluedog is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
